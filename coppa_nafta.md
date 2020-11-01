@@ -1,3 +1,3 @@
 1187275
-Banana split
+Ingredienti:
 Coppa Nafta
